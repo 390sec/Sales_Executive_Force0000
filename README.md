@@ -12,3 +12,7 @@ The books are collected related to the Salesman so this is where saved the list 
 learning is needed before doing sometihing.
 ______________________________________________________________________________________________________________________
 ______________________________________________________________________________________________________________________
+3.
+This is one of the clear understanding you have to take so as said to you , Untitled.pdf which is one of the other best supportive pdf where we take the report ; Sales Executive Report
+______________________________________________________________________________________________________________________
+______________________________________________________________________________________________________________________
